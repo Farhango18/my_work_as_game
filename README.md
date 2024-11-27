@@ -1,1 +1,1 @@
-# my_work_as_game
+# My_project_as_a_college_student
